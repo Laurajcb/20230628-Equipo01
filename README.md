@@ -1,4 +1,6 @@
 **Laura Callejas**
-##Colombia
-:grind:
+
+## Colombia
+
+:grin:
 
