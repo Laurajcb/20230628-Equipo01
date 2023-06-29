@@ -1,1 +1,1 @@
-Laura Callejas - Federico Caruso - Elmer Mendoza
+Laura Callejas - Federico Caruso - Elmer Mendoza - Jammie Hurtado
